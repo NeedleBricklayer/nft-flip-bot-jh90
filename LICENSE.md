@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft mint bot with smart NFT Flip Bot for nft mint bot | bulk-purchases & wash-trading-detection. Featuring bulk-purchases and wash-trading-detection, it's the
 
 
 
